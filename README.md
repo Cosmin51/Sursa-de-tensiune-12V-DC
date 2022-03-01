@@ -1,0 +1,1 @@
+# Sursa-de-tensiune-12V-DC
